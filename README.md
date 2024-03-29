@@ -103,14 +103,6 @@ Mar 19 2024
 
 <br />
 
-### Larva Chad 4594 with Laser Eyes
-
-Mar 12 2024
-
-<kbd><img src="images/LarvaChad_4594_LaserEyes.jpeg" /></kbd>
-
-<br />
-
 ### Larva Chad 1532 at Bondi
 
 Mar 6 2024
