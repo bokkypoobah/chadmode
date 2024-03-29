@@ -6,15 +6,17 @@ Please enjoy!
 
 ---
 
-### Chonky Pops and Chonky Chads at Brighton Le Sands
+## Chad 1532
+
+### Chad 1532 at Little Congwong Beach
 
 Mar 29 2024
 
-<kbd><img src="images/ChonkyPopsOnBeachWithChonkyChads-2048x1536.jpg" /></kbd>
+<kbd><img src="images/LarvaChad_1532_LittleCongWong.png" /></kbd>
 
 <br />
 
-### Larva Chad 1532 at Lady Bay
+### Chad 1532 at Lady Bay Beach
 
 Mar 20 2024
 
@@ -22,8 +24,7 @@ Mar 20 2024
 
 <br />
 
-
-### Larva Chad 1532 at Athol Beach
+### Chad 1532 at Athol Beach
 
 Mar 20 2024
 
@@ -31,7 +32,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Obelisk Beach
+### Chad 1532 at Obelisk Beach
 
 Mar 20 2024
 
@@ -39,7 +40,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Gerroa
+### Chad 1532 at Gerroa
 
 Mar 20 2024
 
@@ -47,7 +48,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at La Perouse
+### Chad 1532 at La Perouse
 
 Mar 20 2024
 
@@ -55,7 +56,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Circular Quay
+### Chad 1532 at Circular Quay
 
 Mar 20 2024
 
@@ -63,7 +64,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Darling Harbour
+### Chad 1532 at Darling Harbour
 
 Mar 20 2024
 
@@ -71,7 +72,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Harbour Bridge
+### Chad 1532 at Harbour Bridge
 
 Mar 20 2024
 
@@ -79,7 +80,7 @@ Mar 20 2024
 
 <br />
 
-### Larva Chad 1532 at Luna Park
+### Chad 1532 at Luna Park
 
 Mar 19 2024
 
@@ -87,7 +88,7 @@ Mar 19 2024
 
 <br />
 
-### Larva Chad 1532 at Opera House
+### Chad 1532 at Opera House
 
 Mar 19 2024
 
@@ -95,7 +96,7 @@ Mar 19 2024
 
 <br />
 
-### Larva Chad 1532 at Cockatoo Island
+### Chad 1532 at Cockatoo Island
 
 Mar 19 2024
 
@@ -103,8 +104,20 @@ Mar 19 2024
 
 <br />
 
-### Larva Chad 1532 at Bondi
+### Chad 1532 at Bondi
 
 Mar 6 2024
 
 <kbd><img src="images/LarvaChad_1532_Bondi.png" /></kbd>
+
+<br />
+
+---
+
+## Chonky Pops
+
+### Chonky Pops and Chonky Chads at Brighton Le Sands
+
+Mar 29 2024
+
+<kbd><img src="images/ChonkyPopsOnBeachWithChonkyChads-2048x1536.jpg" /></kbd>
