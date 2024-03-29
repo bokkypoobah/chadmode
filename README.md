@@ -1,4 +1,4 @@
-# fknchad
+# chadmode
 
 Please enjoy!
 
